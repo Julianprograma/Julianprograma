@@ -63,13 +63,8 @@ Estos son algunos de mis proyectos más relevantes. Visita cada enlace para ver 
 
 Si te interesa colaborar o quieres saber más acerca de mis proyectos:
 
-✉️ **Email:** *(agrega tu correo aquí)*  
+✉️ **Email:** *julianprograma0102@gmail.com*  
 🔗 **LinkedIn:** https://www.linkedin.com/in/julianmorenomultimedia/  
 🌐 **Portfolio:** https://julianproductor.my.canva.site/portfolio
 
----
 
-## 📌 Extras
-
-
-📈 *Mi GitHub stats:*  
